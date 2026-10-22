@@ -20,5 +20,5 @@
 
  ⠀⠀ ⠀𝒸u𝚝ᧉຣ𝚝  ⠀⠀𝑔i𐑾ℓ𝚋𑄝ყ ⠀⠀ pᧉ𐑾᥎ᧉ𐑾𝚝
 
-<img align="center" width="500" src="https://file.garden/aoEdV1yTIDlsvo-O/tumblr_ae7ce0af724289ae0d909895868647a3_80594868_1280.gif">
+<img align="middle" width="500" src="https://file.garden/aoEdV1yTIDlsvo-O/tumblr_ae7ce0af724289ae0d909895868647a3_80594868_1280.gif">
  
